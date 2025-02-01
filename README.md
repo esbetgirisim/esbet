@@ -1,3 +1,3 @@
-# Esbet 🔑 Esbet Giriş 🔑 Esbet Güncel Giriş Adresi
+# Esbet - Esbet Güncel Resmi Giriş Adresi
 
-Esbet, bonkör bonuslar ve yüksek rtp oranları ile esbet giriş yap. Esbet güncel giriş adresine buradan ulaşabilirsiniz.
+Esbet, bonkör bonuslar ve yüksek rtp oranları kullanıcıları memnun etmeye devam ediyor. Sen de esbet giriş yap birbirinden harika bonusları kap. Esbet güncel giriş adresine buradan ulaşabilirsiniz.
